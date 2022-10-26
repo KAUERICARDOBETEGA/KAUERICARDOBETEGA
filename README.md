@@ -3,4 +3,3 @@
 - 🌱 Estou atualmente cursando o curso Alura
 - 💞️ Espero que meu site supere minhas expectativas!
 - 📫 Mais visto na escola
-- 
